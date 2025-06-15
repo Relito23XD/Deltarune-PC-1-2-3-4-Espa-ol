@@ -1,1 +1,1 @@
-# Deltarune-PC-1-2-3-4-Espa-ol
+# Deltarune-PC-1-2-3-4-Español
